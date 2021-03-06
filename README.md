@@ -1,1 +1,1 @@
-# AthenaHacks
+# Small_Business_Atlanta
